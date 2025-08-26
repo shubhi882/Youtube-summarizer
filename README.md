@@ -111,6 +111,6 @@ youtube-summarizer/
 
 ## Contact
 
-Amulya Bharti J - bhartiamulya0902@gmail.com
+Shubhi Agnihotri : agnihotrishubhi05@gmail.com
 
 
